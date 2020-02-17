@@ -5,3 +5,5 @@ She doesn't change out of her PJs either coz she doesn't care.
 
 Hell yeah, lazy llrh
 hahahahhahahaha
+
+Nathan is so lazy. Crazy.
